@@ -1,0 +1,1 @@
+# Tek_ve_Cift_Elemanlari_Farkli_Dizilere_Gonder
